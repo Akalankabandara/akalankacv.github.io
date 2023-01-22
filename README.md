@@ -1,1 +1,0 @@
-# akalankacv.github.io
